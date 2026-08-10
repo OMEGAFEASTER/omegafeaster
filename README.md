@@ -1,10 +1,10 @@
 
 <img width="145" height="200" alt="pluey-mike" src="https://github.com/user-attachments/assets/d5aabbda-41b5-487d-8e80-1dde58b048d3" /> <- me irl in real life
 
-if you're reading this, you're probably from ponytown! i donthave a strawpage yet but expect that in the future to replace this
+if you're reading this, you're probably from ponytown! i have a strawpage nowww!!! https://omegafeaster.straw.page
  - you can call me vincent, feaster, or by my ingame skin :^ he/it/anything but she 
  - i have NO life whatsoever so i'm usually giggin it with the undertale/deltarune fans, feel free to say hi or sit with me!! im usually offtab drawing but i'll get back to you when i can >_< 
- - i dont have a dni, just please don't be a weirdo. you will be hidden on sight
+ - i dont have a strict dni, just please don't be a weirdo. you will be hidden on sight
  - my interests include (but are NOT limited to) ut/dr, ultrakill, portal, pokemon, devilman, tiger&bunny, monster prom... please talk to me about these or ask about any others if you gaf...🗣️
  - i'm a resident polymikerrrr ouughhh they make me ill
  
