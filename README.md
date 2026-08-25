@@ -1,7 +1,7 @@
 
 <img width="145" height="200" alt="pluey-mike" src="https://github.com/user-attachments/assets/d5aabbda-41b5-487d-8e80-1dde58b048d3" /> <- me irl in real life
 
-if you're reading this, you're probably from ponytown! i have a strawpage nowww!!! https://omegafeaster.straw.page - leave a gimmick  @ the bottom if you'd like... :D
+if you're reading this, you're probably from ponytown! i have a strawpage nowww!!! https://omegafeaster.straw.page - **leave a gimmick  @ the bottom if you'd like... :D**
  - you can call me vincent, feaster, or by my ingame skin :^ he/it/anything masc
  - i have NO life whatsoever so i'm usually giggin it with the undertale/deltarune fans, feel free to say hi or sit with me!! im usually offtab drawing but i'll get back to you when i can >_< 
  - my willingness to rp depends on my mood/status but c+h/boop/kiss is always fine 
