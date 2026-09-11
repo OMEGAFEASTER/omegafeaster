@@ -4,7 +4,7 @@
 if you're reading this, you're probably from ponytown! i have a strawpage nowww!!! https://omegafeaster.straw.page - **leave a gimmick  @ the bottom if you'd like... :D**
  - you can call me vincent, feaster, or by my ingame skin :^ 
  - i have NO life whatsoever so i'm usually giggin it with the ut/dr fans, feel free to say hi or sit with me!! im usually offtab drawing but i'll get back to you when i can >_< especially int if we share fandoms !!! **c+h/boop/kiss is always fine** 
- - **^^^ as an addendum PLEASE do not come up to me and roleplay unless i know you :( ^^^**
+ - **^^^ as an addendum PLEASE do not come up to me and roleplay unless i know you :(**
  - i dont have a strict dni, just please don't be a weirdo. you will be hidden on sight. i hide a lot . lmk if im sitting on ur oomfs or whatever ill move !!!!
  - i'm a resident polymikerrrr ouughhh they make me ill
  
