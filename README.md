@@ -1,6 +1,6 @@
-<p align="center">
-<img width="145" height="200" alt="pluey-mike" src="https://github.com/user-attachments/assets/d5aabbda-41b5-487d-8e80-1dde58b048d3" /> <- me irl in real life
 
+<img width="145" height="200" alt="pluey-mike" src="https://github.com/user-attachments/assets/d5aabbda-41b5-487d-8e80-1dde58b048d3" /> <- me irl in real life
+<p align="center">
 if you're reading this, you're probably from ponytown! i have a strawpage nowww!!! https://omegafeaster.straw.page - **leave a gimmick  @ the bottom if you'd like... :D**
  - you can call me vincent, feaster, or by my ingame skin :^ 
  - i have NO life whatsoever so i'm usually giggin it with the ut/dr fans, feel free to say hi or sit with me!! im usually offtab drawing but i'll get back to you when i can >_< especially int if we share fandoms !!! **c+h/boop/kiss is always fine** 
