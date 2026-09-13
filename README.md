@@ -7,7 +7,6 @@ if you're reading this, you're probably from ponytown! i have a strawpage nowww!
  - **^^^ as an addendum PLEASE do not come up to me and roleplay unless i know you :(**
  - i dont have a strict dni, just please don't be a weirdo. you will be hidden on sight. i hide a lot . lmk if im sitting on ur oomfs or whatever ill move !!!!
  - i'm a resident polymikerrrr ouughhh they make me ill
-
     <img width="360" height="267" alt="finally-i-think-we-now-have-the-official-name-of-the-gang-v0-3xyc1cp9uz0g1" src="https://github.com/user-attachments/assets/43fbb6b1-bb43-4540-8693-27a10263df44" />
 
 
