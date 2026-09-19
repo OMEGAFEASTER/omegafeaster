@@ -2,9 +2,9 @@
 <img width="145" height="200" alt="pluey-mike" src="https://github.com/user-attachments/assets/d5aabbda-41b5-487d-8e80-1dde58b048d3" /> <- me irl in real life
 
 if you're reading this, you're probably from ponytown! i have a strawpage nowww!!! https://omegafeaster.straw.page - **leave a gimmick  @ the bottom if you'd like... :D**
+
  - you can call me vincent, feaster, or by my ingame skin :^ 
- - i have NO life whatsoever so i'm usually giggin it with the ut/dr fans, feel free to say hi or sit with me!! im usually offtab drawing but i'll get back to you when i can >_< **especially int if we share fandoms !!! c+h/boop/kiss is always fine**
- - **^^^ as an addendum PLEASE do not come up to me and roleplay unless i know you :(**
+   - i'm usually giggin it with the ut/dr fans or my oomfs, feel free to say hi or sit with me!! im usually offtab drawing but i'll get back to you when i can >_< **especially int if we share fandoms !!! c+h/boop/kiss is always fine**
  - i dont have a strict dni, just please don't be a weirdo. you will be hidden on sight. i hide a lot . lmk if im sitting on ur oomfs or whatever ill move !!!!
  - i'm a resident polymikerrrr ouughhh they make me ill
     <img width="360" height="267" alt="finally-i-think-we-now-have-the-official-name-of-the-gang-v0-3xyc1cp9uz0g1" src="https://github.com/user-attachments/assets/43fbb6b1-bb43-4540-8693-27a10263df44" />
